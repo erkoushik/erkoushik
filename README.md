@@ -48,7 +48,7 @@ Happy Coding!!
 
 ### My Socials
 
-[<img target="_blank" src="https://img.icons8.com/bubbles/100/000000/linkedin.png">](https://linkedin.com/in/https://www.linkedin.com/in/koushik-jainkj/) 
+[<img target="_blank" src="https://img.icons8.com/bubbles/100/000000/linkedin.png">](https://www.linkedin.com/in/koushik-jainkj/) 
  [<img target="_blank" src="https://img.icons8.com/bubbles/100/000000/instagram-new.png">](https://www.instagram.com/kskshik/)
 
 
