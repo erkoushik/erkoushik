@@ -42,8 +42,6 @@ Please feel free to clone projects and raise issues if you think something could
 <br/>
 Happy Coding!!
 
-### Connect with me
-[<img target="_blank" src="https://img.icons8.com/bubbles/100/000000/secured-letter.png">](mailto:er.koushikjain@gmail.com)
 
 
 ### My Socials
