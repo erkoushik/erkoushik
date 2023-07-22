@@ -5,9 +5,9 @@
 
 - 💬 Ask me about **anything, I'm happy to help.**
 
-- 📫 Email at **er.koushikjain@gmail.com to reach out to me.**
+- 📫 Email at **koushikjain1210@gmail.com to reach out to me.**
 
-- 📄 See my [Resume](https://docs.google.com/document/d/1v_wEWXWLhKujgj732MyCzJrhXG-vqKJDl1HSVLvuMZQ/edit) to get more info about me.
+- 📄 See my [Resume](https://docs.google.com/document/d/1v_wEWXWLhKujgj732MyCzJrhXG-vqKJDlSVLvuMZQ/edit) to get more info about me.
 <br/>
 </em>
 
